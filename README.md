@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Frenz Fries 🍟⚡  
+# 👋 Hi, I'm Fren Fries 🍟⚡  
 **Resilient Tech Explorer | AI & Cybersecurity Enthusiast | Embedded Systems Alchemist**  
 
 ---
